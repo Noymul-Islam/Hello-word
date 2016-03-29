@@ -1,3 +1,3 @@
 # Hello-word
-getting started 
-Alhamdulillah, Allahu Akber
+getting starte
+lllllllld 
